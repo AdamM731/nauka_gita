@@ -1,2 +1,2 @@
-ADAM :p :p
-Malysz :p :p
+ADAM :D :D
+Malysz :D :D
